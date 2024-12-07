@@ -48,7 +48,7 @@
 ![Screenshot 2024-12-03 144740](https://github.com/user-attachments/assets/b6bb18dd-90c6-4052-be21-46498d6cc17b)
 
 
-### Name:KAIALSH PRABHU S
+### Name:KAILASH PRABHU S
 ### Register Number:24013672 
 
 ## RESULT:
